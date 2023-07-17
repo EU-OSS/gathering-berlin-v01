@@ -6,7 +6,7 @@ This Gathering represents the initial step towards addressing this issue and aim
 
 Irrespective of your specialization, we cordially invite you to join us in connecting and establishing enduring relationships with like-minded individuals who share a common vision.
 
-* Date: 14th of September 2023
+* Date: 11th of October 2023
 * Time: 7 PM CET
 * City: Berlin, Germany
 * Venue: To be announced

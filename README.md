@@ -11,6 +11,6 @@ Irrespective of your specialization, we cordially invite you to join us in conne
 * City: Berlin, Germany
 * Venue: To be announced
 
-To confirm your attendance, we kindly request you to join this WhatsApp group via the following link:  https://chat.whatsapp.com/GPpekmx34CXGbBUBzO4nrb
+To confirm your attendance, we kindly request you to join this WhatsApp group via the following link: https://chat.whatsapp.com/GPpekmx34CXGbBUBzO4nrb
 
 We look forward to the opportunity of meeting you in person!
